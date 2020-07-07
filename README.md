@@ -17,3 +17,10 @@
 
 ## Tell me a time when you worked under pressure?
 - guy tried to get into the area in air force. major person of authority tried to enter a restricted area without proper credentials and I had to stand my ground
+
+## Questions to Ask
+- What are the next steps?
+- I checked out there website is there any improvements you're considering?
+- Vacation days?
+- July 7, 10:30 3635 Whiskey Road Aiken South Carolina 
+- Tim Panell
